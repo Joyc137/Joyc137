@@ -4,3 +4,6 @@ the new verse of technology.
 - 👀 With a degree in Phyiscs 
 - 🌱 I’m currently learning UI/UX 
 - 📫 How to reach me [LinkedIn](https://www.linkedin.com/in/joy-badea-90a4a1224/)
+
+
+:alien: 
